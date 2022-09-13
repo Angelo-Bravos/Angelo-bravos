@@ -3,6 +3,7 @@
 - 🌱 I’m currently teaching & learning ...Ubantu Linux & Github & Software Patterns
 - 💞️ I’m looking to collaborate on ...Teaching
 - 📫 How to reach me ... via email @ Angelo.Bravos@judsonu.edu
+- Google phone: 331-222-9609
 -   via SMS: +1 331-222-6374
 
 <!---
